@@ -1,3 +1,3 @@
 Link for the demo of the video
 
-https://drive.google.com/file/d/1Fe4JSEwr0uGuJrdtrDBzV07FTulfhcZC/view?usp=sharing
+https://www.google.com/maps/d/u/0/edit?mid=1jOzjj0hOvK9zYUFI25FeV6ZImWPmtz4&usp=sharing
